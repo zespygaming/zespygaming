@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @zespygaming
+- 👋 Hi, I’m @ze spy gaming
 - 👀 I’m interested in backstabs
 - 🌱 I’m currently learning how to breathe
 - 💞️ I’m not looking to collaborate
